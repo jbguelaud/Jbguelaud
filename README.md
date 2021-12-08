@@ -4,4 +4,4 @@ I'm Jean-Baptiste Guelaud. After finishing an MSc in Finance at the university o
 
 By doing this, I was able to discover a world that interests me enormously. During my studies I was able to do various internships as a Business Developer, but now I would like to move towards the profession of Product Manager 
 
-If you are interested in my profile, or if you simply have questions about my career, please contact me via Linkedin. 😊
+If you are interested in my profile, or if you simply have questions about my experience, please contact me via Linkedin. 😊
